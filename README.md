@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Observational Astronomy.
 - 📫 How to reach me yixuan.shao@stonybrook.edu
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: Splatoon 3, FF XIV, LOL Player, Procreate User
+- ⚡ Interests: Splatoon 3, FF XIV, LOL Player, Procreate User
 
 <!---
 FerroYx/FerroYx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
